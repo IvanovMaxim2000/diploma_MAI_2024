@@ -1,0 +1,1 @@
+# diploma_MAI_2024
